@@ -4,10 +4,13 @@
 ₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Prounouns](https://en.pronouns.page/@glaxianmoxn)
                                                              Respect my ships gaiz,,,,
 
+                                                             
+Why i ship ShadAmy > They have more chemistry(for me) they are also the opposite of eachother, while Shadow is rude and somewhat cold, Amy is kind and sweet. They are kind of like the sun and moon, earth and sea, light and dark. Theres also many other cartoon/anime characters that has their dynamic
+
 
 <!--0
 **Moiemon/Moiemon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
+Why u ship ShadAmy > They are the opposite of eachother, while Shadow is rude and somewhat cold, Amy is kind and sweet. They are kind of like the sun and moon, earth and sea, light and dark. Theres also many other cartoon/anime characters that has their dynamic
 
 
 - 🔭 I’m currently working on ...
