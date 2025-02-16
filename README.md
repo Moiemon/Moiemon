@@ -2,10 +2,10 @@
 ![image](https://github.com/user-attachments/assets/0e5daf96-3bb7-495c-843b-7c332ccb6d64) 
 
 ₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Prounouns](https://en.pronouns.page/@glaxianmoxn)
-                                                             Respect my ships gaiz,,,,
+                                                             Respect my ships gaiz,,,, (im a multishiper)
 
                                                              
-Why i ship ShadAmy > They have more chemistry(for me) they are also the opposite of eachother, while Shadow is rude and somewhat cold, Amy is kind and sweet. They are kind of like the sun and moon, earth and sea, light and dark. Theres also many other cartoon/anime characters that has their dynamic
+
 
 
 <!--0
