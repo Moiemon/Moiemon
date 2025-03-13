@@ -1,6 +1,7 @@
 ## -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
+![image](https://github.com/user-attachments/assets/0e4770e8-b01e-4514-8be0-061ccf1bdec4)
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
-![image](https://github.com/user-attachments/assets/0e5daf96-3bb7-495c-843b-7c332ccb6d64) 
+
 
 ₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Prounouns](https://en.pronouns.page/@glaxianmoxn)
                                                              Respect my ships gaiz,,,, (I like shadamy, sonamy, knuxouge, metamy.. and so on)
