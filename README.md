@@ -4,7 +4,7 @@
 
 
 ₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Prounouns](https://en.pronouns.page/@glaxianmoxn)
-                                                             Respect my ships gaiz,,,, (I like shadamy, sonamy, knuxouge, metamy.. and so on)
+                                                             Respect my ships gaiz,,,, 
 
                                                              
 
