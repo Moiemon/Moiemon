@@ -1,5 +1,6 @@
 ## -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
-![image](https://github.com/user-attachments/assets/0e4770e8-b01e-4514-8be0-061ccf1bdec4)
+![image](https://github.com/user-attachments/assets/f4cc01b7-b2d4-4535-8383-052ceb6ed764)
+
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
 
 
