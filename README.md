@@ -5,7 +5,8 @@
 
 
 ₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Prounouns](https://en.pronouns.page/@glaxianmoxn)
-                                                            
+                                                          
+                                                            art by cura88 in pinterest
 
                                                              
 
