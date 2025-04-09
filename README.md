@@ -1,13 +1,12 @@
 ## -ˋˏ✄┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈┈
-![image](https://github.com/user-attachments/assets/f4cc01b7-b2d4-4535-8383-052ceb6ed764)
+![image](https://github.com/user-attachments/assets/806ebeae-d85e-4ce9-b839-b377b59707a9)
+6ed764)
 
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
 
 
 ₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Prounouns](https://en.pronouns.page/@glaxianmoxn)
                                                           
-                                                            art by cura88 in pinterest
-
                                                              
 
 
