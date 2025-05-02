@@ -8,7 +8,7 @@
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
 
 
-₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Prounouns](https://en.pronouns.page/@glaxianmoxn)
+₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Rentry]https://(rentry.org/moxilicious)
                                                           
                                                              
 
