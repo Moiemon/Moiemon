@@ -8,7 +8,7 @@
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
 
 
-₊✩‧₊˚౨ৎ˚₊✩‧₊ [Strawpage](https://moximon.straw.page), [Atabook](https://moiemon.atabook.org/), [Rentry](https://rentry.org/moxilicious)
+₊✩‧₊˚౨ৎ˚₊✩‧₊  [Atabook](https://moiemon.atabook.org/), [Rentry](https://rentry.org/moxilicious)
                                                           
                                                              
 
