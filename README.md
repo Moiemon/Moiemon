@@ -1,14 +1,15 @@
 
 
 
-![image](https://github.com/user-attachments/assets/ff33b866-b83d-479c-bc65-7e05ab13eaed)
+![image](https://github.com/user-attachments/assets/c48f92a7-2041-4c2e-bdce-8caf55e2fbf1)
+
 
 
 
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
 
 
-₊✩‧₊˚౨ৎ˚₊✩‧₊  [Atabook](https://moiemon.atabook.org/), [Rentry](https://rentry.org/moxilicious)
+--> [Atabook](https://moiemon.atabook.org/), [Rentry](https://rentry.org/moxilicious)
                                                           
                                                              
 
