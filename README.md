@@ -1,6 +1,7 @@
 
+![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
 
-<img width="500" height="500" alt="dickkoryy-removebg-preview (1)" src="https://github.com/user-attachments/assets/c4c9f5fb-76dd-42c6-83b6-5b26d75b572e" />
+  <img width="420" height="359" alt="dickkoryy-removebg-preview (1)" src="https://github.com/user-attachments/assets/37d48603-b07d-4702-82b0-405073916115" />
 
 
 
@@ -13,11 +14,7 @@
 
 
 
-
-![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
-
-
---> [Atabook](https://moiemon.atabook.org/), [Rentry](https://rentry.org/moxilicious)
+ ⤷ [Atabook](https://moiemon.atabook.org/) , [Rentry](https://rentry.org/moxilicious)
                                                           
                                                              
 
