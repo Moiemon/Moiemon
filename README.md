@@ -14,7 +14,7 @@
 
 
 
- ⤷ [Atabook](https://moiemon.atabook.org/) , [Strawpage]() , [Rentry](https://rentry.org/moxilicious) 
+ ⤷ [Atabook](https://moiemon.atabook.org/) , Strawpage , [Rentry](https://rentry.org/moxilicious) 
                                                           
                                                              
 
