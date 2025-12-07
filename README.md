@@ -1,5 +1,5 @@
 
-[Decor my tree !!](https://colormytree.me/2025/01KB9X7CTB7D9NR1AZP9BVM5T7) ←- link
+[Decor my tree !!](https://colormytree.me/2025/01KB9X7CTB7D9NR1AZP9BVM5T7)
 
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
 
