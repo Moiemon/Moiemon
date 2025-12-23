@@ -1,7 +1,10 @@
-![bg](https://github.com/user-attachments/assets/f2b505ac-9374-49d7-ba55-5694474facb1)
+
+ ![bg](https://github.com/user-attachments/assets/83a4fcbf-b8a7-494d-9c49-b367b92d480a)
+
+[ata](https://moiemon.atabook.org/) . [straw](https://moiemon.straw.page) . [rentry](https://rentry.co/moxilicious) .
 
 
-![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet) 
+![](https://komarev.com/ghpvc/?username=Moiemon&color=lightgrey) 
 
 
 
