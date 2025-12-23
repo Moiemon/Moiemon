@@ -1,10 +1,9 @@
 
-[Decor my tree !!](https://colormytree.me/2025/01KB9X7CTB7D9NR1AZP9BVM5T7)
 
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=blueviolet)
 
 
-  <img width="420" height="359" alt="dickkoryy-removebg-preview (1)" src="https://github.com/user-attachments/assets/37d48603-b07d-4702-82b0-405073916115" />
+  
 
 
 
@@ -15,9 +14,6 @@
 
 
 
-
-
- ⤷ [Atabook](https://moiemon.atabook.org/) , [Strawpage](https://moiemon.straw.page) , [Rentry](https://rentry.org/moxilicious) 
                                                           
                                                              
 
