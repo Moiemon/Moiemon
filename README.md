@@ -3,7 +3,7 @@
 
 [ata](https://moiemon.atabook.org/) . [straw](https://moiemon.straw.page) . discord: @glaxianmoxn , ask b4 adding
 
-shadamy is my comf ship ^q^
+shadamy is my comf ship ^q^ i loev shadamy omghg
 
 
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=lightgrey) 
