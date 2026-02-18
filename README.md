@@ -1,9 +1,6 @@
 
  ![bg](https://github.com/user-attachments/assets/83a4fcbf-b8a7-494d-9c49-b367b92d480a)
 
-[ata](https://moiemon.atabook.org/) . [straw](https://moiemon.straw.page) . discord: @glaxianmoxn , ask b4 adding
-
-shadamy is my comf ship ^q^ i loev shadamy omghg
 
 
 ![](https://komarev.com/ghpvc/?username=Moiemon&color=lightgrey) 
