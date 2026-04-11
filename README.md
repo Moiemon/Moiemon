@@ -1,10 +1,14 @@
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=Moiemon&color=4f4673&label=🕷+𓈒+Mystery+Inc.+❜)
+
 <p align="center">
 <img src="https://github.com/user-attachments/assets/898b8459-23e9-42a1-a6b5-f405efae2351" alt="Sample Image" width="60" height="60" /> 
-⠀›  
+⠀
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/65b81b2a-523f-4b01-8eff-2d8d3666af0a" alt="Sample Image" width="790" height="710" />
+  <img src="https://github.com/user-attachments/assets/65b81b2a-523f-4b01-8eff-2d8d3666af0a" alt="Sample Image" width="60%">
 
-![](https://komarev.com/ghpvc/?username=Moiemon&color=blue&label=🕷+𓈒+Mystery+Inc.+❜)
+
 
   
 
