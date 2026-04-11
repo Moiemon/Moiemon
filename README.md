@@ -1,9 +1,13 @@
 <div align="center">
-  
-![](https://komarev.com/ghpvc/?username=Moiemon&color=4f4673&label=🕷+𓈒+Mystery+Inc.)
+ 
+  ![](https://komarev.com/ghpvc/?username=Moiemon&color=4f4673&label=🕷+𓈒+Mystery+Inc.)
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/00919df3-810b-4432-b84b-d3f7a1e858fd" alt="Sample Image" width="90" height="80" /> 
+
+<p align="center">
+
+$\color{#4f4673}{\text{" Scooby Dooby Doo, where are you? "}}$
 ⠀
 <p align="center">
   <img src="https://github.com/user-attachments/assets/65b81b2a-523f-4b01-8eff-2d8d3666af0a" alt="Sample Image" width="70%">
