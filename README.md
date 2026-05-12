@@ -11,8 +11,11 @@ WIP
 
 <p align="center">
 
-$\color{#4f4673}{\text{" Scooby Dooby Doo, where are you? "}}$
-⠀
+$\color{#4f4673}{\text{"  The Star, the Fire, the Live, the Wire, the alien princess in my alien attire! The energy blasts, the supersonic speed }}$
+
+<p align="center"> ⠀
+$\color{#4f4673}{\text{ Is she down with the Titans? Oh the-yes indeed! "}}$
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/9f8ba121-03f6-440a-9af5-18316658cb7a" alt="Sample Image" width="60%">
 
