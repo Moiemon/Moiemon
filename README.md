@@ -5,19 +5,20 @@ WIP
   ![](https://komarev.com/ghpvc/?username=Moiemon&color=4f4673&label=🕷+𓈒+Mystery+Inc.)
 
 <p align="center">
-<img src="https://github.com/user-attachments/assets/00919df3-810b-4432-b84b-d3f7a1e858fd" alt="Sample Image" width="90" height="80" /> 
+<img src="https://github.com/user-attachments/assets/2d3fb26b-8dbc-45c5-b414-0e25c265e3a1" alt="Sample Image" width="90" height="80" /> 
+
+
 
 <p align="center">
 
 $\color{#4f4673}{\text{" Scooby Dooby Doo, where are you? "}}$
 ⠀
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/65b81b2a-523f-4b01-8eff-2d8d3666af0a" alt="Sample Image" width="70%">
+  <img src="https://github.com/user-attachments/assets/9f8ba121-03f6-440a-9af5-18316658cb7a" alt="Sample Image" width="60%">
 
 
 
-  
-
+ 
 
 
 
