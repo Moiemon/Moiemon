@@ -2,7 +2,7 @@ WIP
 
 <div align="center">
  
-  ![](https://komarev.com/ghpvc/?username=Moiemon&color=4f4673&label=🕷+𓈒+Mystery+Inc.)
+  ![](https://komarev.com/ghpvc/?username=Moiemon&color=4f4673&label=👽+𓈒+Alienzz.)
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/2d3fb26b-8dbc-45c5-b414-0e25c265e3a1" alt="Sample Image" width="90" height="80" /> 
