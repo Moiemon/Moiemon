@@ -10,18 +10,9 @@ WIP
 <p align="center">
   <img src="https://github.com/user-attachments/assets/6868e9a7-fc90-4ec0-8210-a02b1cd6ce68" alt="Sample Image" width="50%">
 
+## <a  href="https://moiemon.atabook.org/" target="_blank">新𝖻𝗈𝗈𝗄</a> ${\textsf{ㅤㅤ♯ㅤㅤ}}$ <a href="https://moiemon.straw.page" target="_blank">Strawpage</a> ${\textsf{ㅤㅤ♯ㅤㅤ}}$ <a href="https://en.pronouns.page/@Moxiiii" target="_blank">Pronouns</a> 
 
-
-
-                                                          
-
-
-
-
-                                                          
-                                                             
-
-
+ 
 
 <!--0
 **Moiemon/Moiemon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
