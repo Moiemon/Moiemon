@@ -16,10 +16,6 @@ $\color{#4f4673}{\text{"  The Star, the Fire, the Live, the Wire, the alien prin
 <p align="center"> ⠀
 $\color{#4f4673}{\text{ Is she down with the Titans? Oh the-yes indeed! "}}$
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/9f8ba121-03f6-440a-9af5-18316658cb7a" alt="Sample Image" width="60%">
-
-
 
  
 
