@@ -7,17 +7,8 @@ WIP
 <p align="center">
 <img src="https://github.com/user-attachments/assets/2d3fb26b-8dbc-45c5-b414-0e25c265e3a1" alt="Sample Image" width="90" height="80" /> 
 
-
-
 <p align="center">
-
-$\color{#4f4673}{\text{"  The Star, the Fire, the Live, the Wire, the alien princess in my alien attire! The energy blasts, the supersonic speed }}$
-
-<p align="center"> ⠀
-$\color{#4f4673}{\text{ Is she down with the Titans? Oh the-yes indeed! "}}$
-
-
- 
+  <img src="https://github.com/user-attachments/assets/6868e9a7-fc90-4ec0-8210-a02b1cd6ce68" alt="Sample Image" width="40%">
 
 
 
