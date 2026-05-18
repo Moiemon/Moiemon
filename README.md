@@ -8,7 +8,7 @@ WIP
 <img src="https://github.com/user-attachments/assets/2d3fb26b-8dbc-45c5-b414-0e25c265e3a1" alt="Sample Image" width="90" height="80" /> 
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/6868e9a7-fc90-4ec0-8210-a02b1cd6ce68" alt="Sample Image" width="40%">
+  <img src="https://github.com/user-attachments/assets/6868e9a7-fc90-4ec0-8210-a02b1cd6ce68" alt="Sample Image" width="50%">
 
 
 
