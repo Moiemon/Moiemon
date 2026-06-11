@@ -8,7 +8,9 @@
 <img src="https://github.com/user-attachments/assets/2d3fb26b-8dbc-45c5-b414-0e25c265e3a1" alt="Sample Image" width="90" height="80" /> 
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/6868e9a7-fc90-4ec0-8210-a02b1cd6ce68" alt="Sample Image" width="50%">
+ <img src="banner-removebg-preview (1)" src="https://github.com/user-attachments/assets/4925ebdb-0956-4acd-99dd-2cafcf5ab768" alt="Sample Image" width="50%">
+
+
 
 ## <a  href="https://moiemon.atabook.org/" target="_blank">Ata𝖻𝗈𝗈𝗄</a> ${\textsf{ㅤ⸝ㅤ♯ㅤ⸝ㅤ}}$ <a href="https://moiemon.straw.page" target="_blank">Strawpage</a> ${\textsf{ㅤ⸝ㅤ♯ㅤ⸝ㅤ}}$ <a href="https://en.pronouns.page/@Moxiiii" target="_blank">Pronouns</a> 
 
